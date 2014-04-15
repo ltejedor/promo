@@ -1,1 +1,1 @@
-PROMO PROMO PROMO PROMO PROMO WAHHHHH
+Visit [vidcode.io](http://vidcode.io/) for more information
